@@ -1,0 +1,6 @@
+- Whats good, im aceify
+- I'm new to programming and i just started learning C++
+- I like all types of video games
+- I want to be able to eventually start coding in java and create mods for my favorite games
+- If you want to reach me, my email is aciliezar1215@gmail.com
+- 
